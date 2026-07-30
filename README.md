@@ -33,10 +33,10 @@ Busco oportunidades na área de Desenvolvimento de Sistemas para aplicar e ampli
 
 ### Técnico em Desenvolvimento de Sistemas
 
-**SENAI Celso Charuri** | 2025 - 2027 (Em andamento)
+**SENAI Celso Charuri** | 2026 - 2027 (Em andamento)
 
 ### Ensino Médio
-SESI Fuad Assef Maluf | 2025 – 2027 (Em andamento)
+SESI Fuad Assef Maluf | 2026 – 2027 (Em andamento)
 
 ### Ensino Fundamental
 
